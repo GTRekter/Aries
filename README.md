@@ -1,1 +1,1 @@
-# Bagal-Bakery
+# Bagalà Bakery
